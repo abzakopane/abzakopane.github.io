@@ -1,1 +1,0 @@
-# abzakopane.github.io
